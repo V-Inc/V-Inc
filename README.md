@@ -1,0 +1,5 @@
+- 👋 Sup
+- 👀 I’m chilling
+- 🌱 I’m grilling
+- 💞️ I’m milling
+- 📫 I'm willing
